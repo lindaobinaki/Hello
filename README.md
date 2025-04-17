@@ -1,1 +1,3 @@
-https://youtu.be/mfboDpl88QY?si=mhs2a1ekiTxiaNWC&t=1249
+據野史紀載
+劉邦曾經在曹魏做賣溝子生意 
+後世俗稱 邦君疑似賣溝
